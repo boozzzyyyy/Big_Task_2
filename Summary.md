@@ -1,1 +1,1 @@
-vsdcsd
+lupa di push ka,
